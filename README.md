@@ -1,4 +1,4 @@
-GRUPO 14
+GRUPO 11
 INTEGRANTES:
 Carbajal Reyes, Alan Alberto
 Espinoza Ramirez Carlos
